@@ -19,7 +19,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا حبيبي خليك قريب مني
+> نار الشوق في قلبي بتناديك
+> لا تغيب عن عيني ولا ثانية
+> روحي وعمري كله بين إيديك
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
